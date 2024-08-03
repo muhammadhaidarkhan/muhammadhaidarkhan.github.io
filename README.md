@@ -13,7 +13,6 @@ What excites me most is pushing myself to achieve new goals, but my ambitions ex
 **Connect with Me**
 
 | [LinkedIn](https://www.linkedin.com/in/haidarkhan) |
-| [khanmuhammadhaidar@gmail.com](mailto:khanmuhammadhaidar@gmail.com) |
 
 
 **Last Updated:** June 5, 2024
